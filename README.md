@@ -33,7 +33,7 @@
 
 ## 📬 Контакты
 
-🌐 Сайт: [https://art-made.ru](https://art-made.ru)  
+🌐 [Наш сайт](https://art-made.ru) 
 🔗 Telegram / Behance — по запросу
 
 ---
